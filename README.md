@@ -1,1 +1,0 @@
-# kursovay_Yap
